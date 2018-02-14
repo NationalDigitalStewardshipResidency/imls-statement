@@ -27,6 +27,7 @@ Peggy Griesinger<br>
 Dinah Handel<br>
 Heidi Dowding Kelly<br>
 Mary Kidd<br>
+Genevieve Havemeyer-King<br>
 Marissa Kings<br>
 Jen LaBarbera<br>
 Adam Lott<br>
@@ -36,11 +37,14 @@ Katie Mika<br>
 Lee Nilsson<br>
 Margo Padilla<br>
 Tricia Patterson<br>
+Cate Peebles<br>
 Shira Peltzman<br> 
 Megan Potterbusch<br>
 Alice Prael<br>
 Lorena Ramírez-López<br>
 Stefanie Ramsay<br>
 Ariadne Rehbein<br>
+Molly Schwartz<br>
 Vicky Steeves<br>
-Elise Tanner
+Elise Tanner<br>
+Erica Titkemeyer
