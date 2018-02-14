@@ -6,7 +6,7 @@ IMLS supports a nation of learners. It is the only public organization with the 
 
 IMLS programs such as NDSR have inspired a new generation of information professionals dedicated to preserving the digital record, and we will continue to do our part. As stewards of the nation’s digital heritage, resources, and infrastructure, we demand unequivocally that Congress reject this budget. We urge you to join us by contacting your representatives. Let them know that you love libraries, museums, learning, and personal and national enrichment; IMLS must remain a funding priority.
 
-Signed,
+Signed,<br>
 Erin Lee Barsan<br>
 Karl-Rainer Blumenthal<br>
 Meredith Broadway<br>
