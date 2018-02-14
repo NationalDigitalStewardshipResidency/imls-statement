@@ -31,6 +31,7 @@ Genevieve Havemeyer-King<br>
 Marissa Kings<br>
 Jen LaBarbera<br>
 Adam Lott<br>
+Pamela McClanahan<br>
 Morgan McKeehan<br>
 Kate McManus<br>
 Katie Mika<br>
